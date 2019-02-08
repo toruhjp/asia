@@ -2,6 +2,7 @@
 ## 申し送り
 ### 本リスト作成の背景
 noteをご覧ください
+
 https://note.mu/toruh_jp/n/nb0d57cecfa6b
 
 ### 品質改善
