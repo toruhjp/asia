@@ -5,3 +5,5 @@ noteをご覧ください
 URL: TBA
 
 ## フローチャート
+
+![フローチャート](https://github.com/toruhjp/asia/blob/master/contract_flowchart%20v.0.0.1%20.jpg)
