@@ -19,6 +19,11 @@ You are going to where you can be of help.
 
 OK.
 
+## Dream
+- To live in where my family can relax outside Japan for years because Japan is not one and only place to be in
+- To see my son enjoy his life without any kinds of bullying or harassment
+- To die without pain
+
 ## Taste
 - Seeing somebody showing their great ability // Probably this is from some jazz experience
 - Sweets and coffee/espresso // Probably this is a reason why I am fat
@@ -29,3 +34,16 @@ OK.
 - Unfair deal // Working long hours included
 - Passive/active smoking // I do not drink any alcohol, either
 
+## Place
+### Travel
+- Spain
+- US
+- Netherlands
+- Greece
+- Taiwan
+- Australia
+
+### Work
+- Japan
+- Vietnam
+- Philippines
