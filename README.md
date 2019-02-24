@@ -8,6 +8,11 @@ I am a 40 y/o Japanese fat open-minded man living in Tokyo at this point ( in 20
 
 Drummer + translator + business analyst ( of IT ) + cook + Giant Escape rider
 
+### Posting
+- Twitter - https://twitter.com/toruhjp // Mostly in Japanease words
+- note - https://note.mu/toruh_jp // Only in Japanease words
+- Facebook - https://www.facebook.com/toru.hirasawa // For friends only
+
 ## Story
 Being the professional drummer, I built and opened my website with my Ubuntu barebone computer so that I can introduce myself and the drum school to target Japanese customers.
 
