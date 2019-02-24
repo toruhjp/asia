@@ -13,7 +13,7 @@ Drummer + translator + business analyst ( of IT ) + cook + Giant Escape rider
 - note - https://note.mu/toruh_jp // Only in Japanease words
 - Facebook - https://www.facebook.com/toru.hirasawa // For friends only
 
-## About in Japanese
+## About 日本語版
 https://note.mu/toruh_jp/n/n26641a34264f
 
 ## Story
