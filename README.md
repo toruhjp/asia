@@ -60,3 +60,8 @@ OK.
 - Japan
 - Vietnam
 - Philippines
+
+## Academic record
+- BABEL University Professional School of Translation // Dropout for starting translation job
+- Koyo Conservatory of Music // Experienced paper delivery job for 2 years at the same time
+- Seibu Gakuen Bunri High School // Cows mooed beyond river, and I slept at my desk
