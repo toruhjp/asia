@@ -30,6 +30,7 @@ OK.
 - Social listening
 - SEO
 - Establishing organizational structure
+- Working remote // It requires some unique consideration for colleagues
 
 ## Dream
 - To live in where my family can relax outside Japan for years because Japan is not one and only place to be in
