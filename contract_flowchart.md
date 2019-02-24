@@ -6,4 +6,4 @@
 ## 背景
 noteをご覧ください
 
-URL: TBA
+https://note.mu/toruh_jp/n/nc47e34ab6a16
