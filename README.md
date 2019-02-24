@@ -45,6 +45,11 @@ OK.
 
 Honestly saying, I'm afraid I'm not so good at them.
 
+## Passion
+1. To conclude good, reasonable agreements for both developers and biz side
+2. To prevent death marches // Do not march to the beat of incorrect drum!
+3. To enjoy everyday life!
+
 ## Dream
 - To live in where my family can relax outside Japan for years because Japan is not one and only place to be in
 - To see my son enjoy his life without any kinds of bullying or harassment
