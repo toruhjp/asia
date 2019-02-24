@@ -20,7 +20,7 @@ Suddenly one day, an idea flashed into my mind, which was "you should do what yo
 
 Do I like it? Do I want to do it? No.
 
-You are going to where you can be of help.
+You are just going to where you can be of help.
 
 OK.
 
