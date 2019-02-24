@@ -61,7 +61,7 @@ Honestly saying, I'm afraid I'm not so good at them.
 - Passive/active smoking // I do not drink any alcohol, either
 
 ## Place
-### Travel
+### Traveled
 - Spain
 - US
 - Netherlands
@@ -69,7 +69,7 @@ Honestly saying, I'm afraid I'm not so good at them.
 - Taiwan
 - Australia
 
-### Work
+### Worked
 - Japan
 - Vietnam
 - Philippines
