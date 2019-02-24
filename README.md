@@ -31,6 +31,14 @@ OK.
 - SEO
 - Establishing organizational structure
 - Working remote // It requires some unique consideration for colleagues
+- Breakdown vague, undefined object to clear task
+
+### Coding skills
+- JavaScript
+- PHP
+- Python
+
+Honestly saying, I'm afraid I'm not good at them.
 
 ## Dream
 - To live in where my family can relax outside Japan for years because Japan is not one and only place to be in
