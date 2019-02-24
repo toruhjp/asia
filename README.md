@@ -38,7 +38,7 @@ OK.
 - PHP
 - Python
 
-Honestly saying, I'm afraid I'm not good at them.
+Honestly saying, I'm afraid I'm not so good at them.
 
 ## Dream
 - To live in where my family can relax outside Japan for years because Japan is not one and only place to be in
