@@ -47,7 +47,7 @@ Honestly saying, I'm afraid I'm not so good at them.
 
 ## Passion
 1. To conclude good, reasonable agreements for both developers and biz side
-2. To prevent death marches // Do not march to the beat of incorrect drum!
+2. To prevent/resolve death marches // Do not march to the beat of incorrect drum...
 3. To enjoy everyday life!
 
 ## Dream
