@@ -19,15 +19,27 @@ You are going to where you can be of help.
 
 OK.
 
+## Role / skillset
+- IT project management
+- Web direction
+- Project management office
+- BrSE
+- Sales
+- Information architecture
+- UX design
+- Social listening
+- SEO
+- Establishing organizational structure
+
 ## Dream
 - To live in where my family can relax outside Japan for years because Japan is not one and only place to be in
 - To see my son enjoy his life without any kinds of bullying or harassment
 - To die without pain
 
 ## Taste
+- Reading articles and tweeting in an airy, high-ceilinged room // A large hotel lounge is desirable
 - Seeing somebody showing their great ability // Probably this is from some jazz experience
 - Sweets and coffee/espresso // Probably this is a reason why I am fat
-- Reading articles and tweeting in an airy, high-ceilinged room // A large hotel lounge is desirable
 
 ## To be avoided
 - Unreasonable decision // Emotion is not always correct
