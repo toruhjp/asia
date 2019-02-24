@@ -9,7 +9,7 @@ I am a 40 y/o Japanese fat open-minded man living in Tokyo at this point ( in 20
 Drummer + translator + business analyst ( of IT ) + cook + Giant Escape rider
 
 ## Story
-Being the professional drummer, I built and opened my website with my Ubuntu barebone computer so that I can introduce myself and the drum school.
+Being the professional drummer, I built and opened my website with my Ubuntu barebone computer so that I can introduce myself and the drum school to target Japanese customers.
 
 Suddenly one day, an idea flashed into my mind, which was "you should do what you are good regardless of your personal history".
 
