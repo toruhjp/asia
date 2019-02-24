@@ -57,7 +57,7 @@ Honestly saying, I'm afraid I'm not so good at them.
 
 ## To be avoided
 - Unreasonable decision // Emotion is not always correct
-- Unfair deal // Working long hours included
+- Unfair deal // Working long hours in Japan included
 - Passive/active smoking // I do not drink any alcohol, either
 
 ## Place
