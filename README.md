@@ -58,7 +58,7 @@ Honestly saying, I'm afraid I'm not so good at them.
 - To see my son enjoy his life without any kinds of bullying or harassment
 - To die without pain
 
-## Taste
+## Like!
 - Reading articles and tweeting in an airy, high-ceilinged room // A large hotel lounge is desirable
 - Seeing somebody showing their great ability // Probably this is from some jazz experience
 - Sweets and coffee/espresso // Probably this is a reason why I am fat
